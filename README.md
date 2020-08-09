@@ -1,16 +1,10 @@
-### Hi there 👋
-
-<!--
-**AppleFree/AppleFree** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Share cho các anh chị em 
+Lấy tiếp IB:https://bitly.com.vn/xGYTm
+ID: hoanglong22tq1@gmail.com
+password : Soicodoc1
+Vô nhóm đi nào của tui nào ae 👉:https://bitly.com.vn/c96vJ
+📌📌Lưu ý quan trọng:
+👉 Ko đăng nhập icloud.
+👉 Mật khẩu và id trong link anh em chú ý phân biệt chữ hoa chữ thường
+👉 Tải app ở mục gia đình. Vào phần đã mua
+👉 Id cộng đồng ai tải được thì tải nên ae vui lòng ko ib mở khoá này kia mất công nha
